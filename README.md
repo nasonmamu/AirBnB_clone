@@ -1,1 +1,1 @@
-The airbnb project by Nason and Daberechi
+Done the project alone.
